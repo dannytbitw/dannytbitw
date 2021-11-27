@@ -1,4 +1,4 @@
-### Hi there firends be one with technology ⚡ 👋
+### Hi there firends be one with technology 👋
 
 <!--
 **dannytbitw/dannytbitw** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
